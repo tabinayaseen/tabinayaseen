@@ -20,7 +20,7 @@ Build Website with Attractive Front-end and Professional Backend
 •Skype : (https://join.skype.com/invite/HRh2clh1dBOW)
 
 
-[https://img.freepik.com/premium-vector/laptop-coding-concept-web-developer-programming-laptop-screen-code-illustration_100456-1753.jpg](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.freepik.com%2Fpremium-vector%2Flaptop-coding-concept-web-developer-programming-laptop-screen-code-illustration_10358526.htm&psig=AOvVaw3YDsx6h-wvTgU4mIh9ezJL&ust=1719066727963000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjLmeD07IYDFQAAAAAdAAAAABAE)
+
 
 
 
