@@ -8,19 +8,19 @@ Build Website with Attractive Front-end and Professional Backend
 • 🚀 I'm a Consistent, Hard-working, and a Motivated person.
 • 🌊 Deep experince in Website designing + developing with backend and databases
 • ✨ I have 2+ years  experience in programming field.
-• 📫 Conncet with me through linkedin (www.linkedin.com/in/tabina-yaseen-b95ba5278);
+• 📫 Conncet with me through linkedin (www.linkedin.com/in/tabina-yaseen-b95ba5278)
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1&pause=1900&random=false&width=435&lines=Connect+with+me+through%F0%9F%A4%9D%3A)](https://git.io/typing-svg)
 
-•LinkedIn : (www.linkedin.com/in/tabina-yaseen-b95ba5278);
-•Facebook : https://www.facebook.com/share/BmRK3L5gxbvq1pBP/?mibextid=qi2Omg;
-•Instagram : https://www.instagram.com/tabina_yaseen?igsh=bmF2NDNsOGJ0dDB4;
-•Snapchat : https://www.snapchat.com/add/tabeenayaseen?share_id=1Ak-PgcHI_Q&locale=en-US;
-•Skype : https://join.skype.com/invite/HRh2clh1dBOW;
+•LinkedIn : (www.linkedin.com/in/tabina-yaseen-b95ba5278)
+•Facebook : (https://www.facebook.com/share/BmRK3L5gxbvq1pBP/?mibextid=qi2Omg)
+•Instagram : (https://www.instagram.com/tabina_yaseen?igsh=bmF2NDNsOGJ0dDB4)
+•Snapchat : (https://www.snapchat.com/add/tabeenayaseen?share_id=1Ak-PgcHI_Q&locale=en-US)
+•Skype : (https://join.skype.com/invite/HRh2clh1dBOW)
 
 
-https://img.freepik.com/premium-vector/laptop-coding-concept-web-developer-programming-laptop-screen-code-illustration_100456-1753.jpg
+[https://img.freepik.com/premium-vector/laptop-coding-concept-web-developer-programming-laptop-screen-code-illustration_100456-1753.jpg](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.freepik.com%2Fpremium-vector%2Flaptop-coding-concept-web-developer-programming-laptop-screen-code-illustration_10358526.htm&psig=AOvVaw3YDsx6h-wvTgU4mIh9ezJL&ust=1719066727963000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIjLmeD07IYDFQAAAAAdAAAAABAE)
 
 
 
