@@ -23,22 +23,22 @@ With connectivity with databases and more
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&pause=1000&random=false&width=435&lines=Skills+%F0%9F%92%BB%3A)](https://git.io/typing-svg)
 
-1.Works on Database management systems
-2.Web server technologies like Apache 
-3.Programming languages
-4.Team management 
-5.Communication 
-6.User interface (UI) design principles
-7.Responsive design
-8.Cross-browser compatibility
-9.Team leading 
-10.Best researching power
-11.Programming languages 
-12.Frameworks and libraries
-13.Database management
-14.Version control
-15.Problem-solving and debugging
-16.Communication and collaboration
+1.Works on Database management systems    
+2.Web server technologies like Apache     
+3.Programming languages    
+4.Team management    
+5.Communication    
+6.User interface (UI) design principles    
+7.Responsive design    
+8.Cross-browser compatibility    
+9.Team leading    
+10.Best researching power    
+11.Programming languages    
+12.Frameworks and libraries    
+13.Database management    
+14.Version control    
+15.Problem-solving and debugging    
+16.Communication and collaboration    
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&pause=1000&random=false&width=435&lines=General+Skills%F0%9F%92%BB%3A)](https://git.io/typing-svg)
 
