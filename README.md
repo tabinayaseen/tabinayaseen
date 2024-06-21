@@ -13,13 +13,13 @@ Build Website with Attractive Front-end and Professional Backend
 
 
 Hello everyone! 
-My name is Tabeena yaseen and I am a Passionate frontend and backend developer with a knack for crafting seamless user experiences and robust, scalable solutions. Proficient in a range of technologies including HTML, CSS, JavaScript for frontend development, and C# ,PHP, .Net , Node.js, and SQL for backend development. Dedicated to staying current with emerging trends and technologies to continuously enhance projects and drive innovation. Excited about collaborating with teams to create exceptional digital experiences."
+My name is Tabeena yaseen and I am a Passionate frontend and backend developer with a knack for crafting seamless user experiences and robust, scalable solutions. Proficient in a range of technologies including HTML, CSS, JavaScript for frontend development, and C# ,PHP, .Net , Node.js, and SQL for backend development. Dedicated to staying current with emerging trends and technologies to continuously enhance projects and drive innovation. Excited about collaborating with teams to create exceptional digital experiences."    
 
-learning new technologies and exploring more about IT world 
-Curious to know different programs and languages
-Have a experience of 2 years in programming field 
-Designed many website with beautiful UI and Excellent UX
-With connectivity with databases and more
+learning new technologies and exploring more about IT world   
+Curious to know different programs and languages    
+Have a experience of 2 years in programming field     
+Designed many website with beautiful UI and Excellent UX    
+With connectivity with databases and more    
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&pause=1000&random=false&width=435&lines=Skills+%F0%9F%92%BB%3A)](https://git.io/typing-svg)
 
@@ -53,11 +53,11 @@ With connectivity with databases and more
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1&pause=1900&random=false&width=435&lines=Connect+with+me+through%F0%9F%A4%9D%3A)](https://git.io/typing-svg)
 
-•LinkedIn : (www.linkedin.com/in/tabina-yaseen-b95ba5278)
-•Facebook : (https://www.facebook.com/share/BmRK3L5gxbvq1pBP/?mibextid=qi2Omg)
-•Instagram : (https://www.instagram.com/tabina_yaseen?igsh=bmF2NDNsOGJ0dDB4)
-•Snapchat : (https://www.snapchat.com/add/tabeenayaseen?share_id=1Ak-PgcHI_Q&locale=en-US)
-•Skype : (https://join.skype.com/invite/HRh2clh1dBOW)
+•LinkedIn : (www.linkedin.com/in/tabina-yaseen-b95ba5278)    
+•Facebook : (https://www.facebook.com/share/BmRK3L5gxbvq1pBP/?mibextid=qi2Omg)    
+•Instagram : (https://www.instagram.com/tabina_yaseen?igsh=bmF2NDNsOGJ0dDB4)    
+•Snapchat : (https://www.snapchat.com/add/tabeenayaseen?share_id=1Ak-PgcHI_Q&locale=en-US)    
+•Skype : (https://join.skype.com/invite/HRh2clh1dBOW)    
 
 
 
