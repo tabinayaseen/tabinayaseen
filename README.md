@@ -42,12 +42,12 @@ With connectivity with databases and more
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Arial&pause=1000&random=false&width=435&lines=General+Skills%F0%9F%92%BB%3A)](https://git.io/typing-svg)
 
-Time management
-Adaptability
-Attention to detail
-Creativity
-Continuous learning
-Teamwork
+1.Time management    
+2.Adaptability    
+3.Attention to detail    
+4.Creativity    
+5.Continuous learning    
+6.Teamwork    
 
 
 
